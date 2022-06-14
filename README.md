@@ -7,3 +7,5 @@ https://www.redbull.com/nz-en/cartoons/link-puzzle-gaming
 
 
 only works in 3440 x 1440. Ultrawide masterrace 
+
+Disclaimer: I did not use this to win the competition
